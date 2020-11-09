@@ -46,7 +46,4 @@ they don’t get off the vessel; and
 
 Every person who gets to enter into the country needs to have a final say of Canadian border service officers.
 
-This year’s pandemic has hit Canadian immigration really hard. While initially the target for immigrants to be welcomed into Canada was 341,000, Canada is on its way
-of welcoming 200,000 immigrants or maybe lower than that because of the pandemic stopgaps. Canada revealed in its new Immigration Level Plans 2021-23 that the new target for
-next three years would be to welcome well over 1.2 million immigrants to compensate for the decline caused by pandemic to support and boost the economic
-recovery.
+This year’s pandemic has hit [Canadian immigration](https://www.kansasxpress.com/immigration-to-canada) really hard. While initially the target for immigrants to be welcomed into Canada was 341,000, Canada is on its way of welcoming 200,000 immigrants or maybe lower than that because of the pandemic stopgaps. Canada revealed in its new Immigration Level Plans 2021-23 that the new target for next three years would be to welcome well over 1.2 million immigrants to compensate for the decline caused by pandemic to support and boost the economic recovery.
